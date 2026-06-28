@@ -1,4 +1,4 @@
-# 
+# Instantâneo QuickBooks modelos para Mac OS | Profissional QuickBooks modelos para PC Windows. Com gestão de clientes e compressão de PDF — otimizado para máximo desempenho em cada plataforma.
 
 
 
